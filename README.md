@@ -12,7 +12,7 @@
 
 :books: I’m currently learning everything.
 
-:outbox_tray: 2023 Goals: Expand knowledge.
+:outbox_tray: 2024 Goals: Expand knowledge.
 
  
 
